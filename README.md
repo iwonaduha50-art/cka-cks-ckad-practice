@@ -13,8 +13,11 @@
 **体验账号：ok8s-key-tmp**
 
 **闲鱼、淘宝账号100%好评率,好评如潮、信誉100%**
-[**咸鱼店铺地址：**](https://m.tb.cn/h.RyEnDii?tk=iNScgoXRICC)
+
 [**淘宝店铺地址：**](https://m.tb.cn/h.RAfDxKeuuxIUx8X)
+
+[**咸鱼店铺地址：**](https://m.tb.cn/h.RyEnDii?tk=iNScgoXRICC)
+
 
 欢迎来到 CKA（Certified Kubernetes Administrator）、CKS（Certified Kubernetes Security Specialist）、CKAD（Certified Kubernetes Application Developer）备考训练服务仓库！这里为正在备考 Kubernetes 相关认证的同学，提供一站式备考解决方案，助力大家高效通关认证考试。
 
