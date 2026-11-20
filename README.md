@@ -107,7 +107,7 @@ A：完全可以！本地环境部署简单，题库解析详细，模拟考贴�
 最后，祝所有备考 CKA/CKS/CKAD 的同学，都能顺利通关，拿下认证！🚀
 
 **闲鱼、淘宝账号100%好评率,好评如潮、信誉100%**
-[**咸鱼店铺地址：**](https://m.tb.cn/h.iCbl0Eq?tk=Dctm5nMuCFC)
+[**咸鱼店铺地址：**](https://shop500161293.taobao.com/category.htm?spm=pc_detail.30350276.shop_block.dentershop.39b17dd6QqGkNv&topIds=1081215840621)
 [**淘宝店铺地址：**](https://m.tb.cn/h.ix7497H0uJrqDZd)
 
 
