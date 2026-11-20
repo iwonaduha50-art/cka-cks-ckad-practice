@@ -14,7 +14,7 @@
 
 **闲鱼、淘宝账号100%好评率,好评如潮、信誉100%**
 
-[**淘宝店铺地址：**](https://m.tb.cn/h.RAfDxKeuuxIUx8X)
+[**淘宝店铺地址：**](https://shop500161293.taobao.com/category.htm?spm=pc_detail.30350276.shop_block.dentershop.39b17dd6QqGkNv&topIds=1081215840621)
 
 [**咸鱼店铺地址：**](https://m.tb.cn/h.RyEnDii?tk=iNScgoXRICC)
 
